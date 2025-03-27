@@ -26,3 +26,11 @@
     1. Terminar la carrera en lo posible en tiempo y forma
     2. Conseguir trabajo antes de terminar la carrera
     3. Trabajar en algún emprendimiento personal o para alguna empresa en la que esté interesado (todavía no lo tengo decidido a esto)
+
+---
+### **Otros datos sobre mí**:
+> Estoy terminando de ver la última temporada de Fear The Walking Dead. Me encanta el universo de The Walking Dead. 🧟‍♂️
+
+> Color favorito: Verde 🟢
+
+> Mis gustos musicales: variados de todo un poco
