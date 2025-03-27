@@ -33,4 +33,8 @@
 
 > Color favorito: Verde 🟢
 
-> Mis gustos musicales: variados de todo un poco
+> Mis gustos musicales: variados de todo un poco. Les adjunto foto de mi ranking de Spotify 2024.
+
+> Les dejo la lista de artistas y canciones que más escuché en el año 2024
+<br>
+![Mi top artistas y canciones 2024](spotify_my_ranking.jpg "Mi top artistas y canciones 2024")
